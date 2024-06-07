@@ -12,4 +12,4 @@ Meu nome é Lucas Borges
 
 @lucasxnzz7
 
-![descrição do GIF](link GIF do Tenor)
+![descrição do GIF](https://www.google.com/url?sa=i&url=http%3A%2F%2Fviveremdoismundos.blogspot.com%2F2017%2F05%2Fsupernatural.html&psig=AOvVaw139AEKRCIZTGP93b39CwmT&ust=1717884624960000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCKDOt5DByoYDFQAAAAAdAAAAABAJ)
